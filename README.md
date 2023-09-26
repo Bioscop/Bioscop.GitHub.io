@@ -1,3 +1,1 @@
-# EuroDraperies.com
-soon
-Alex Anisimov
+# vira
